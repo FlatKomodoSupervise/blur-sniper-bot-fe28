@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with custom blur sniper bot | real-time-monitoring + proxy-transactions, the #1 blur sniper bot. Includes real-time-monitoring and proxy-transactions for
 
 
 
